@@ -19,7 +19,7 @@ Join us as we delve into the depths of machine learning, uncover the mysteries o
 
 ## Can I present?
 
-Of course. Check the schedule below for empty slots and contact [Janosch](https://www.chalmers.se/personer/janosch/)
+Of course. Check the schedule below for empty slots and contact [Alec](https://www.chalmers.se/personer/gower/)
 
 ## Can I join online?
 
